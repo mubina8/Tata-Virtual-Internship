@@ -1,2 +1,3 @@
-![Screenshot (331)](https://github.com/mubina8/Tata-Virtual-Internship/assets/54999073/6b945242-7089-4cb4-a370-b922d7d3f38d)
+![Screenshot (332)](https://github.com/mubina8/Tata-Virtual-Internship/assets/54999073/7c1737c8-da5a-4852-b893-26cacafa87b5)
+
 # Tata-Virtual-Internship
